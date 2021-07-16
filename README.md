@@ -1,1 +1,1 @@
-- 👋 Hi, I’m @fatihegriboz
+- 👋 Hi, I’m [@egriboz](https://github.com/egriboz)
